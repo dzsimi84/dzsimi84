@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dzsimi84
-- 👀 I’m interested in grils.
+- 👀 I’m interested in girls.
 - 🌱 I’m currently learning how to be a functioning human being.
 - 💞️ I’m looking to collaborate on eating a 70cm pizza.
 - 📫 
